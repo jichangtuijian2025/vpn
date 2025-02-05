@@ -69,7 +69,7 @@
 
 
 # 狗狗加速 - 高速VPN服务，畅享全球互联网
-[传送门](https://www.dginv.click/#/register?code=sCbWVzQl)
+[官网传送门](https://www.dginv.click/#/register?code=sCbWVzQl)
 
 选择狗狗加速，为您提供快速、稳定、安全的全球网络加速服务，支持解锁流媒体、ChatGPT等内容，轻松突破网络限制，畅享无限流量。
 
