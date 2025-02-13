@@ -162,4 +162,6 @@
 
 👍[机场推荐2025｜机场节点 | 分享翻墙机场推荐 | 好用稳定机场节点 | 机场评测 | 秒杀VPN](https://github.com/029danio/fly)
 
+🧠DeepSeek本地免费部署：https://github.com/029danio/deepseek
+
 🔍 探索5000+优质Telegram群组、频道和机器人资源库 🚀 https://github.com/jichangtuijian2025/TGQUN
