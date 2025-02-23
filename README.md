@@ -189,7 +189,9 @@ WgetCloud 机场是香港公司开的，原 GaCloud。SS协议，BGP中转 + 双
 📌 访问官网：[立即前往](https://cutt.ly/ReXWZJgv)  
 
 ---
-最后更新时间：2025年2月22日
+最后更新时间：2025年2月24日
+
+专业稳定机场VPN推荐：https://flyvpn88.top
 
 📬 加入 Telegram福利搜索 https://t.me/jisou?start=a_1638135106
 
